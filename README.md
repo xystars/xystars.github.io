@@ -1,2 +1,2 @@
-# xystars.github.io
+# xu.star
 Profile
